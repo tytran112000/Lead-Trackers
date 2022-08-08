@@ -1,0 +1,2 @@
+# Lead-Trackers
+Wondering how top company is so successful? They keep and remember their leads to turn them from potential customers to recurring customers. By having their leads save somewhere, your company will stop losing potential customers to your competitors. Creating a leads tracker(a link trackers) is extremely easy so why don't you try and make one. Hopefully you can gains new customers or other people interests to your online business.
